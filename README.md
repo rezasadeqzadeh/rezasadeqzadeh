@@ -1,4 +1,4 @@
-An software development and performance engineering expert with  10 years of experience in the IT industry, I can build and develop large-scale products and services and also team lead.
+A software development and performance engineering expert with  10 years of experience in the IT industry, I can build and develop large-scale products and services and also team lead.
 I'm interested in learning, building, problem-solving, and connectivity with other people.
 
 
